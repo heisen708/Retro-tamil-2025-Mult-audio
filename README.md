@@ -4,7 +4,7 @@
 
 #### WATCH & DOWNLOAD From Here👇👇👇
 
-### <a href="[https://tinyurl.com/yutfyd2e](https://t.me/+spWQjnHihlE5MGU1)" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a>
+### <a href="[(https://t.me/+spWQjnHihlE5MGU1)]()" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a>
 
 ---
 
